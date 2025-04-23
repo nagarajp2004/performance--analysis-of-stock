@@ -30,10 +30,3 @@ This project provides accessible and reliable stock market analysis and future p
 
 
 
-
-
-You can modify the contact information and add more specific details as needed. If you have additional requirements, let me know!
-
-Any quries you can contact at 
-gmail:adarshreddy532@gmail.com
-Phone Number:9182546785
